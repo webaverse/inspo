@@ -1,1 +1,1 @@
-# inspo
+Inspirational ingredients
